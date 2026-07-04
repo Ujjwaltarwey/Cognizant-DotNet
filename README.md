@@ -1,1 +1,1 @@
-Congnizent Weekly Assignment
+Cognizant Weekly Assignment
